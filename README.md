@@ -11,6 +11,7 @@ Feel free to connect with me and see how I can contribute to your project!
 
 ## Connect with me:
 - LinkedIn: [LinkedIn Profile](https://linkedin.com/in/ruwbine)
+- Telegram: [Telegram Profile](https://t.me/aeterywww)
 
 ---
 
